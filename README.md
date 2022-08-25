@@ -14,7 +14,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
-어제보다 성장한 내가 되기 위해 노력합니다.
-
-새로운 것을 좋아합니다👏🏻.
